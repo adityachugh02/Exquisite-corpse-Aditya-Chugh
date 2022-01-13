@@ -1,4 +1,4 @@
-# Replusive Corspe
+# Replusive Corpse
 
 **Giovann**
 _Kivanc_
