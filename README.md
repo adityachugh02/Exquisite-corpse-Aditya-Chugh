@@ -1,9 +1,7 @@
-# Replusive Corpse
+# Repulsive Being <sub><sup>(the opposite of exquisite corpse)</sup></sub>
 
-**Giovanna**
+My **vision** LEAKS profusely from the French communal **canoe**. 
 
-_Kivanc_
+I saw a good **salon** talking about an important point relating to ~~maths~~.
 
-###### Nadia
-
-~~Aditya~~
+***It had a nice slang followed by *illustrations*.***
